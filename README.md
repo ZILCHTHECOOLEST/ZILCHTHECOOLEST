@@ -6,7 +6,7 @@
 
 <br><br>
 
-<img src="https://readme-typing-svg.herokuapp.com?font=Impact+Script&size=28&pause=1000&color=d1aa36&center=true&vCenter=true&width=1000&lines=Let+us+dance,+gentlemen!;Dance+as+if+no+ones+shooting+at+us!" />
+<img src="https://readme-typing-svg.herokuapp.com?font=Impact+Script&size=28&pause=1000&color=00d0ff&center=true&vCenter=true&width=1000&lines=Set-Tastic!" />
 <div align="center">
 <img width="540" height="313" alt="Felicie" src="https://github.com/user-attachments/assets/5256e50c-6354-4417-8722-d491624ca72c" />
 
