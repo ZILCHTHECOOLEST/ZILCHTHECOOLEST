@@ -9,4 +9,4 @@
 <div align="center">
 <img width="540" height="313" alt="Felicie" src="https://github.com/user-attachments/assets/5256e50c-6354-4417-8722-d491624ca72c" />
 
-$${{\color{#3949ab}{\textsf{I AM NOT A SYS . PLEASE DO NOT REFER OR THINK OF ME AS A SYS . I MERELY IDENTIFY AS THESE CHARACTERS SINCE I AM THEM\}}}}$$
+$${{\color{#FFDA03}{\textsf{⚠︎\}}}}$$ $${{\color{#3949ab}{\textsf{I AM NOT A SYS . PLEASE DO NOT REFER OR THINK OF ME AS A SYS\}}}}$$ $${{\color{#FFDA03}{\textsf{⚠︎\}}}}$$
