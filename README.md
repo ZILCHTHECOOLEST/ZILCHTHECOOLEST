@@ -2,7 +2,7 @@
 <img width="67" height="55" alt="tumblr_lrkvhzjlPy1qd1g7zo1_500_gif (500×200)" src="https://github.com/user-attachments/assets/53f6339e-e572-4a35-b399-80b1aacdaa85" />
 <div align="center">
 
-[𝖡𝖫𝖴 𝖲𝖯𝖸 𝖦𝖨𝖳𝖧𝖴𝖡](https://github.com/PILOTREDSUNZ) [𝖪𝖮𝖭-𝖤𝖫 𝖦𝖨𝖳𝖧𝖴𝖡](https://github.com/ILOVESUPERMANZ)
+[𝖡𝖫𝖴 𝖲𝖯𝖸 𝖦𝖨𝖳𝖧𝖴𝖡](https://github.com/PILOTREDSUNZ) $${{\color{#d1aa36}{\textsf{⏲\}}}}$$ [𝖪𝖮𝖭-𝖤𝖫 𝖦𝖨𝖳𝖧𝖴𝖡](https://github.com/ILOVESUPERMANZ)
 
 <br><br>
 
