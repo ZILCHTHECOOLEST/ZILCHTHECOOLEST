@@ -8,3 +8,5 @@
 
 <div align="center">
 <img width="540" height="313" alt="Felicie" src="https://github.com/user-attachments/assets/5256e50c-6354-4417-8722-d491624ca72c" />
+
+$${{\color{#002395}{\textsf{⏲\}}}}$$
