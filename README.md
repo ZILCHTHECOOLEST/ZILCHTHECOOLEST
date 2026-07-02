@@ -6,7 +6,7 @@
 
 <br><br>
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Geist+Pixel&pause=1000&width=435&lines=SET-TASTIC!!!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Archivo+Black&pause=1000&width=435&lines=SET-TASTIC!!!)](https://git.io/typing-svg)
 <div align="center">
 <img width="540" height="313" alt="Felicie" src="https://github.com/user-attachments/assets/5256e50c-6354-4417-8722-d491624ca72c" />
 
