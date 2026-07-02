@@ -37,4 +37,5 @@ ${{\color{#4034f0}{\textsf{ＭＹ ＦＩＣＴＩＯＮＫＩＮＳ:\}}}}$
 </table>
 
 ${{\color{#4034f0}{\textsf{WRECK IT RALPH / TURBO MEGA FANS IWEC \}}}}$
+${{\color{#4034f0}{\textsf{SOME OF U ARE GEN WEIRDOS, ESPECIALLY HUGE TURBO FANS . I DO NOT THINK ALL FANS R WEIRD BUT JST IWEC DUE TO BAD EXPERIENCES.\}}}}$
 
