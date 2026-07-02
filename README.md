@@ -35,3 +35,6 @@ ${{\color{#4034f0}{\textsf{ＭＹ ＦＩＣＴＩＯＮＫＩＮＳ:\}}}}$
     </th>
   </tr>
 </table>
+
+${{\color{#4034f0}{\textsf{WRECK IT RALPH / TURBO MEGA FANS IWEC \}}}}$
+
