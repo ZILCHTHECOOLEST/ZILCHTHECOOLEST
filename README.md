@@ -36,5 +36,6 @@ ${{\color{#4034f0}{\textsf{ＭＹ ＦＩＣＴＩＯＮＫＩＮＳ:\}}}}$
   </tr>
 </table>
 
-${{\color{#4034f0}{\textsf{⚠︎ IF YOU RECOGNISE ME AND KNOW MY OTHER GITHUBS PLEASE DO NOT MENTION IT TO ME OR MENTION IT IN THIS PAGE ⚠︎ \}}}}$
+${{\color{#4034f0}{\textsf{⚠︎ IF YOU RECOGNISE ME AND KNOW MY OTHER GITHUBS PLEASE\}}}}$
+${{\color{#4034f0}{\textsf{DO NOT MENTION IT TO ME OR IN THIS PAGE AT ALL ⚠︎ \}}}}$
 
