@@ -5,8 +5,12 @@
 [𝖡𝖫𝖴 𝖲𝖯𝖸 𝖦𝖨𝖳𝖧𝖴𝖡](https://github.com/PILOTREDSUNZ) $${{\color{#dad8c9}{\textsf{⏲\}}}}$$ [𝖪𝖮𝖭-𝖤𝖫 𝖦𝖨𝖳𝖧𝖴𝖡](https://github.com/ILOVESUPERMANZ)
 
 <br><br>
+
 <div align="center">
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Archivo+Black&pause=1000&width=435&lines=SET-TASTIC!!!)](https://git.io/typing-svg)
+
+<img src="https://readme-typing-svg.herokuapp.com?font=Archivo+Black+Script&size=28&pause=1000&color=d1aa36&center=true&vCenter=true&width=1000&lines=SET-TASTIC" />
+
+</div>
 
 <div align="center">
 <img width="540" height="313" alt="Felicie" src="https://github.com/user-attachments/assets/5256e50c-6354-4417-8722-d491624ca72c" />
