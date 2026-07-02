@@ -1,6 +1,6 @@
 <div align="center">
-<img height="195" alt="flag" src="https://github.com/user-attachments/assets/d5988378-aa6f-4aaa-aa68-59f39088bfe2" />
-  <img width="67" height="55" alt="tumblr_lrkvhzjlPy1qd1g7zo1_500_gif (500×200)" src="https://github.com/user-attachments/assets/53f6339e-e572-4a35-b399-80b1aacdaa85" />
+<img width="230" height="120" alt="akrillics" src="https://github.com/user-attachments/assets/9ec06291-3dc9-44d9-b61f-3af3c1803549" />
+
 <div align="center">
 
 [ＧＵＮＳ.ＬＯＬ](https://guns.lol/zilchthecoolest) $${{\color{#dad8c9}{\textsf{⏲\}}}}$$ [ＡＴＡＢＯＯＫ](https://zilchthecoolest.atabook.org/?page=1)
