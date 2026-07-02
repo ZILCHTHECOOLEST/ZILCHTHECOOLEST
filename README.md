@@ -1,5 +1,5 @@
 <div align="center">
-<img height="1039" alt="Untitled5_20260702232510" src="https://github.com/user-attachments/assets/15413851-d7e2-4359-ac56-c673f1c045f3" />
+<img height="870" alt="Untitled5_20260702232510" src="https://github.com/user-attachments/assets/15413851-d7e2-4359-ac56-c673f1c045f3" />
   <img width="67" height="55" alt="tumblr_lrkvhzjlPy1qd1g7zo1_500_gif (500×200)" src="https://github.com/user-attachments/assets/53f6339e-e572-4a35-b399-80b1aacdaa85" />
 <div align="center">
 
