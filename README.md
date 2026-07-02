@@ -1,4 +1,7 @@
 <div align="center">
+<img width="20" height="20" alt="IMG_9683" src="https://github.com/user-attachments/assets/9cbf8ca9-04b8-4994-8352-0a7f5b855092" />
+
+<div align="center">
 <img width="230" height="120" alt="akrillics" src="https://github.com/user-attachments/assets/9ec06291-3dc9-44d9-b61f-3af3c1803549" />
 
 <div align="center">
