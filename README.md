@@ -37,7 +37,7 @@ ${{\color{#4034f0}{\textsf{ＭＹ ＦＩＣＴＩＯＮＫＩＮＳ:\}}}}$
 ${{\color{#4034f0}{\textsf{⚠︎ IF YOU RECOGNISE ME AND KNOW MY OTHER GITHUBS PLEASE\}}}}$
 
 ${{\color{#4034f0}{\textsf{DO NOT MENTION IT TO ME OR IN THIS PAGE AT ALL ⚠︎ \}}}}$
-
+-
 <img width="20" height="20" alt="e1f1be15" src="https://github.com/user-attachments/assets/348212f6-88f6-43d3-bfb2-98f4c0cd58c6" /> ${{\color{#4034f0}{\textsf{❯❯❯❯ I HAVE CSBD AND DPDR . I CAN GET OVERWHELMED EASILY AT CERTAIN THINGS . I AM TERRIBLE SORRY IF I COME OFF AS "SENSETIVE" AND A LOT TO DEAL W AT TIMES BECAUSE OF THIS\}}}}$
 
 
