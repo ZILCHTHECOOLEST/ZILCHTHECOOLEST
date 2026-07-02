@@ -36,6 +36,5 @@ ${{\color{#4034f0}{\textsf{ＭＹ ＦＩＣＴＩＯＮＫＩＮＳ:\}}}}$
   </tr>
 </table>
 
-${{\color{#4034f0}{\textsf{I DO NOT MIND DOUBLES DUE TO MY BELIEF OF THE MULTIVERSE . YES I BELIEVE THERES MORE THAN ONE VERSION OF "MYSELF" ACROSS THE MULTIVERSE\}}}}$
-${{\color{#4034f0}{\textsf{.\}}}}$
+${{\color{#4034f0}{\textsf{⚠︎ IF YOU RECOGNISE ME AND KNOW MY OTHER GITHUBS PLEASE DO NOT MENTION IT TO ME OR MENTION IT IN THIS PAGE ⚠︎ \}}}}$
 
