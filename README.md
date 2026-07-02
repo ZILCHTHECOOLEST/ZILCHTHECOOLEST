@@ -6,9 +6,11 @@
 
 <br><br>
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Coral+Pixels&pause=1000&width=435&lines=SET-TASTIC!!!)](https://git.io/typing-svg)
-
 <div align="center">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sixtyfour&pause=1000&color=2A15F7&width=435&lines=%22GAME+OVER%22" alt="Typing SVG" /></a>
+<br><br>
+  
+  <div align="center">
 <img width="540" height="313" alt="Felicie" src="https://github.com/user-attachments/assets/5256e50c-6354-4417-8722-d491624ca72c" />
 
 
