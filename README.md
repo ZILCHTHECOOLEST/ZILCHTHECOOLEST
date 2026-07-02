@@ -8,7 +8,7 @@
 
 <div align="center">
 
-<img src="https://readme-typing-svg.herokuapp.com?font=Archivo+Black+Script&size=28&pause=1000&color=d1aa36&center=true&vCenter=true&width=1000&lines=SET-TASTIC" />
+<img src="https://readme-typing-svg.herokuapp.com?font=Archivo+Script&size=28&pause=1000&color=d1aa36&center=true&vCenter=true&width=1000&lines=SET-TASTIC" />
 
 </div>
 
