@@ -6,7 +6,7 @@
 
 <br><br>
 
-<img src="https://readme-typing-svg.herokuapp.com?font=Impact+Script&size=28&pause=1000&color=0000ff&center=true&vCenter=true&width=1000&lines=Set-Tastic!" />
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Geist+Pixel&pause=1000&width=435&lines=SET-TASTIC!!!)](https://git.io/typing-svg)
 <div align="center">
 <img width="540" height="313" alt="Felicie" src="https://github.com/user-attachments/assets/5256e50c-6354-4417-8722-d491624ca72c" />
 
