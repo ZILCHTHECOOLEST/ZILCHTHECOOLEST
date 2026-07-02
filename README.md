@@ -36,6 +36,6 @@ ${{\color{#4034f0}{\textsf{ＭＹ ＦＩＣＴＩＯＮＫＩＮＳ:\}}}}$
   </tr>
 </table>
 
-${{\color{#4034f0}{\textsf{WRECK IT RALPH / TURBO MEGA FANS IWEC \}}}}$
-${{\color{#4034f0}{\textsf{SOME OF U ARE GEN WEIRDOS, ESPECIALLY HUGE TURBO FANS . I DO NOT THINK ALL FANS R WEIRD BUT JST IWEC DUE TO BAD EXPERIENCES.\}}}}$
+${{\color{#4034f0}{\textsf{I DO NOT MIND DOUBLES DUE TO MY BELIEF OF THE MULTIVERSE . YES I BELIEVE THERES MORE THAN ONE VERSION OF "MYSELF" ACROSS THE MULTIVERSE\}}}}$
+${{\color{#4034f0}{\textsf{.\}}}}$
 
