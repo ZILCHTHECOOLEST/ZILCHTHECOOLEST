@@ -20,6 +20,6 @@
 
 <img 
 align="right"
-width="450"
+width="250"
 src="https://github.com/user-attachments/assets/de3edf11-3438-4dce-a2fa-ea74ccdc35ec" />
 
