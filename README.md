@@ -50,5 +50,6 @@ ${{\color{#4034f0}{\textsf{IM NOT INTERESTED IN INTERACTING W WIR FANS AND MAY\}
 ${{\color{#4034f0}{\textsf{TAKE LONG TO WARM UP TO YOU GUYS BUT KNOW I AM\}}}}$
 
 ${{\color{#4034f0}{\textsf{NOT HOSTILE TOWARDS ANY OF YOU AND YOU CAN STILL INT ⚠︎\}}}}$
+<img width="1476" height="1039" alt="Untitled5_20260702232510" src="https://github.com/user-attachments/assets/e533fd64-a09d-45ea-bfb4-08e972f57e57" />
 
 ${{\color{#4034f0}{\textsf{❯❯❯❯ ✮⋆˙ I HAVE DEPERSONALIZATION-DEREALIZATION DISORDER AND I CAN GET OVERWHELMED AT CERTAIN THINHS EASILY. I MAY COME OFF AS \}}}}$
