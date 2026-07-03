@@ -78,7 +78,9 @@ ${{\color{#4034f0}{\textsf{ADVANCE FOR THIS IF THIS BOTHERS YOU A LOT SINCE I CA
 
   <br>
 
-${{\color{#4682b4}{\textsf{« My friend requests are turned off and only add those Ive talked w for more than one day and get along w »\}}}}$
+${{\color{#501EFF}{\textsf{« My friend requests are turned off and only add those Ive talked w for more than one day and get along w . I might unfriend you\}}}}$
+
+${{\color{#501EFF}{\textsf{though if we are not that close and havent talked or interacted to eachother for months straight »\}}}}$
 
 </details>
 
