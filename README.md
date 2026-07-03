@@ -52,6 +52,5 @@ ${{\color{#4034f0}{\textsf{TAKE LONG TO WARM UP TO YOU GUYS BUT KNOW I AM\}}}}$
 ${{\color{#4034f0}{\textsf{NOT HOSTILE TOWARDS ANY OF YOU AND YOU CAN STILL INT ⚠︎\}}}}$
 
 <p align="center">
-<img width="150" height="60" alt="download (64)" src="https://github.com/user-attachments/assets/6b08eb17-39f8-41b0-aa18-75e4199665d8" />
-
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sixtyfour&pause=1000&color=2A15F7&width=435&lines=%22WHAT+DO+YOU+FEEL?%22" alt="Typing SVG" /></a>
 ${{\color{#4034f0}{\textsf{❯❯❯❯ ✮⋆˙ I HAVE DEPERSONALIZATION-DEREALIZATION DISORDER AND I CAN GET OVERWHELMED AT CERTAIN THINHS EASILY. I MAY COME OFF AS \}}}}$
