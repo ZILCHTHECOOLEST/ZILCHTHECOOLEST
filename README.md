@@ -55,3 +55,5 @@ ${{\color{#4034f0}{\textsf{NOT HOSTILE TOWARDS ANY OF YOU AND YOU CAN STILL INT 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sixtyfour&pause=1000&color=501EFF&width=435&lines=WHAT+DO+U+FEEL%3F" alt="Typing SVG" /></a>
 
 ${{\color{#4034f0}{\textsf{❯❯❯❯ ✮⋆˙ I HAVE DEPERSONALIZATION-DEREALIZATION DISORDER AND I CAN GET OVERWHELMED AT CERTAIN THINHS EASILY. I MAY COME OFF AS \}}}}$
+
+${{\color{#4034f0}{\textsf{OFF AS SENSETIVE AND A LOT TO DEAL WITH SOMETIMES AND I DEEPLY APOLOGISE FOR THIS . I MAY ACT WEIRD AND OFF AND SOMETIMES DETACHED  \}}}}$
