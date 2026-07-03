@@ -70,9 +70,9 @@ ${{\color{#4034f0}{\textsf{ADVANCE FOR THIS IF THIS BOTHERS YOU A LOT SINCE I CA
 
 <details>
   <summary>
-<img width="20" height="20" alt="iwec" src="https://github.com/user-attachments/assets/febd9c19-1894-4baf-8b1b-08febf9bae25" />
+<img height="20" alt="iwec" src="https://github.com/user-attachments/assets/febd9c19-1894-4baf-8b1b-08febf9bae25" />
     ＭＯＲＥ ＩＮＦＯ
-<img width="20" height="20" alt="iwec" src="https://github.com/user-attachments/assets/febd9c19-1894-4baf-8b1b-08febf9bae25" />
+<img height="20" alt="iwec" src="https://github.com/user-attachments/assets/febd9c19-1894-4baf-8b1b-08febf9bae25" />
     </span>
   </summary>
 
