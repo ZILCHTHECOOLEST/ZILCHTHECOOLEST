@@ -78,7 +78,7 @@ ${{\color{#4034f0}{\textsf{ADVANCE FOR THIS IF THIS BOTHERS YOU A LOT SINCE I CA
 
   <br>
 
-${{\color{#4682b4}{\textsf{TS gen a wip okay \}}}}$
+${{\color{#4682b4}{\textsf{« »\}}}}$
 
 </details>
 
