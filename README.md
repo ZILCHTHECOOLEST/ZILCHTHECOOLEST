@@ -39,4 +39,14 @@ ${{\color{#4034f0}{\textsf{⚠︎ TURBO MEGA FANS / WRECK-IT RALPH FANS IN GEN\}
 
 ${{\color{#4034f0}{\textsf{PLS INT W EXTREME CAUTION UNLESS I ALREADY KNOW U ⚠︎ \}}}}$
 
-${{\color{#4034f0}{\textsf{⚠︎ \}}}}$
+${{\color{#4034f0}{\textsf{⚠︎ NO OFFENSE TO ALL BUT SOME OF YOU FANS GEN WILD ASF\}}}}$
+
+${{\color{#4034f0}{\textsf{IWVEC IS BEST APPLIED WHEN INTERACTING W ME DUE\}}}}$
+
+${{\color{#4034f0}{\textsf{TO PAST BAD EXPERIENCES I HAD WITH THIS FANDOM\}}}}$
+
+${{\color{#4034f0}{\textsf{NOT INTERESTED IN INTERACTING W WIR FANS AND MAY\}}}}$
+
+${{\color{#4034f0}{\textsf{TAKE LONG TO WARM UP TO YOU GUYS BUT KNOW I AM\}}}}$
+
+${{\color{#4034f0}{\textsf{NOT HOSTILE TOWARDS ANY OF YOU AND YOU CAN STILL INT ⚠︎\}}}}$
