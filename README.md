@@ -28,13 +28,15 @@ ${{\color{#4034f0}{\textsf{ＭＹ ＦＩＣＴＩＯＮＫＩＮＳ:\}}}}$
 <table>
   <tr>
     <th>
-      <img width="20" height="20" alt="6a857e8f" src="https://github.com/user-attachments/assets/227b85c7-f0be-48ad-b746-6fbca1b9178f" /> KON-EL <img width="20" height="20" alt="6a857e8f" src="https://github.com/user-attachments/assets/099c2a7e-2fef-4b24-882d-22ed8b8454e8" />
+      <img width="20" height="20" alt="6a857e8f" src="https://github.com/user-attachments/assets/227b85c7-f0be-48ad-b746-6fbca1b9178f" /> ${{\color{#4034f0}{\textsf{ＭＹ ＦＩＣＴＩＯＮＫＩＮＳ:\}}}}$
+ <img width="20" height="20" alt="6a857e8f" src="https://github.com/user-attachments/assets/099c2a7e-2fef-4b24-882d-22ed8b8454e8" />
 <img width="20" height="20" alt="86be4139" src="https://github.com/user-attachments/assets/bc888f1f-9b63-448a-9723-3370a2336eb9" /> TURBOTWIN <img width="20" height="20" alt="86be4139" src="https://github.com/user-attachments/assets/0ce1072a-b6d9-4825-9d51-80575cc7475d" />
     </th>
   </tr>
 </table>
 
-${{\color{#4034f0}{\textsf{⚠︎ IF YOU RECOGNISE ME AND KNOW MY OTHER GITHUBS PLEASE\}}}}$
+${{\color{#4034f0}{\textsf{⚠︎ TURBO MEGA FANS / WRECK-IT RALPH FANS IN GEN\}}}}$
 
-${{\color{#4034f0}{\textsf{DO NOT MENTION IT TO ME OR IN THIS PAGE AT ALL ⚠︎ \}}}}$
+${{\color{#4034f0}{\textsf{PLS INT W EXTREME CAUTION UNLESS I ALREADY KNOW U ⚠︎ \}}}}$
 
+${{\color{#4034f0}{\textsf{⚠︎ \}}}}$
