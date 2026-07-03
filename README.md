@@ -54,7 +54,7 @@ ${{\color{#4034f0}{\textsf{NOT HOSTILE TOWARDS ANY OF YOU AND YOU CAN STILL INT 
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sixtyfour&pause=1000&color=501EFF&width=435&lines=WHAT+DO+U+FEEL%3F" alt="Typing SVG" /></a>
 
-${{\color{#caac67}{\textsf{⤷ ゛Turning 15 , 08/13/11 . Panromantic , Bigender , Pupgender . Any pronouns , She/Her/Pup/Pups preferred . Punk kemonomimi \}}}}$
+${{\color{#caac67}{\textsf{⤷ ゛Turning 15 , 08/13/11 . Polykin . Panromantic , Bigender , Pupgender . Any pronouns , She/Her/Pup/Pups preferred . Punk kemonomimi \}}}}$
 
 ${{\color{#caac67}{\textsf{tomboy IRL ˎˊ˗ \}}}}$
 
