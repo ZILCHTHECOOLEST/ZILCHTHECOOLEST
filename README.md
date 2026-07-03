@@ -82,5 +82,15 @@ ${{\color{#501EFF}{\textsf{« My friend requests are turned off and only add tho
 
 ${{\color{#501EFF}{\textsf{though if we are not that close and havent talked or interacted to eachother for months straight »\}}}}$
 
+${{\color{#501EFF}{\textsf{« I dont use tone tags that often but do tell me if u need them. I might also say some rude and weird things that might make u\}}}}$
+
+${{\color{#501EFF}{\textsf{uncomfortable. Please lmk if I did and I will apologize »\}}}}$
+
+${{\color{#501EFF}{\textsf{« Expect me to actually sit w you if im alone and I see C+H in ur name »\}}}}$
+
+${{\color{#501EFF}{\textsf{« Uhm yeah im also into metal music (mostly white metal), indie pop or whatevr sounds good to me and im also into postal, half-life,\}}}}$
+
+${{\color{#501EFF}{\textsf{HLVRAI, DHMIS, cry of fear, FNF, WIR, ultrakill, comics, the stanley parable, MCSM, until then, SCP, backrooms and more »\}}}}$
+
 </details>
 
