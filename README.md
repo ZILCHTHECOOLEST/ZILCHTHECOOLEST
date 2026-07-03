@@ -66,4 +66,19 @@ ${{\color{#4034f0}{\textsf{DETACHED BECAUSE OF THIS ⚐ \}}}}$
 
 ${{\color{#4034f0}{\textsf{❯❯❯❯ ✮⋆˙ I CAN GET EXTREMELY BRASH, OVERCONFIDENT AND OFTEN GLAZE MYSELF A LOT AT TIMES TO BOOST MY EGO . IM SORRY IN\}}}}$
 
-${{\color{#4034f0}{\textsf{ADVANCE FOR THIS IF THIS BOTHERS YOU A LOT SINCE I CAN GET EXTREMELY ANNOYING AND FURSTRATING BECAUSE OF THIS ⚐\}}}}$
+${{\color{#4034f0}{\textsf{ADVANCE FOR THIS IF THIS BOTHERS YOU A LOT SINCE I CAN GET EXTREMELY ANNOYING AND FRUSTRATING BECAUSE OF THIS ⚐\}}}}$
+
+<details>
+  <summary>
+<img width="20" height="20" alt="iwec" src="https://github.com/user-attachments/assets/febd9c19-1894-4baf-8b1b-08febf9bae25" />
+    ＭＯＲＥ ＩＮＦＯ
+<img width="20" height="20" alt="iwec" src="https://github.com/user-attachments/assets/febd9c19-1894-4baf-8b1b-08febf9bae25" />
+    </span>
+  </summary>
+
+  <br>
+
+${{\color{#4682b4}{\textsf{TS gen a wip okay \}}}}$
+
+</details>
+
