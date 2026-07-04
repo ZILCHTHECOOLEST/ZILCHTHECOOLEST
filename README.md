@@ -88,6 +88,8 @@ ${{\color{#501EFF}{\textsf{uncomfortable. Please lmk if I did and I will apologi
 
 ${{\color{#501EFF}{\textsf{« Expect me to actually sit w you if im alone and I see C+H in ur name »\}}}}$
 
+${{\color{#501EFF}{\textsf{« Little to no care abt some stuffs. I also gen dont care abt doubles like okay we the same person coolcool so like dbls free to int ig »\}}}}$
+
 ${{\color{#501EFF}{\textsf{« Uhm yeah im also into metal music (mostly white metal), indie pop or whatevr sounds good to me and im also into postal, half-life,\}}}}$
 
 ${{\color{#501EFF}{\textsf{HLVRAI, DHMIS, cry of fear, FNF, WIR, ultrakill, comics, the stanley parable, MCSM, until then, SCP, backrooms, TF2 and more »\}}}}$
