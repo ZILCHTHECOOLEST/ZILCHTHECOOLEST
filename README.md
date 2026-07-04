@@ -90,7 +90,7 @@ ${{\color{#501EFF}{\textsf{« Expect me to actually sit w you if im alone and I 
 
 ${{\color{#501EFF}{\textsf{« Uhm yeah im also into metal music (mostly white metal), indie pop or whatevr sounds good to me and im also into postal, half-life,\}}}}$
 
-${{\color{#501EFF}{\textsf{HLVRAI, DHMIS, cry of fear, FNF, WIR, ultrakill, comics, the stanley parable, MCSM, until then, SCP, backrooms and more »\}}}}$
+${{\color{#501EFF}{\textsf{HLVRAI, DHMIS, cry of fear, FNF, WIR, ultrakill, comics, the stanley parable, MCSM, until then, SCP, backrooms, TF2 and more »\}}}}$
 
 </details>
 
