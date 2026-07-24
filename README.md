@@ -23,76 +23,10 @@ align="left"
 width="250"
 src="https://github.com/user-attachments/assets/de3edf11-3438-4dce-a2fa-ea74ccdc35ec" />
 
-${{\color{#4034f0}{\textsf{ＭＹ ＦＩＣＴＩＯＮＫＩＮＳ:\}}}}$
+${{\color{#4034f0}{\textsf{➠ Yo wazzup the names Zilch and I jst like cars in general,\}}}}$
 
-<table>
-  <tr>
-    <th>
-      <img width="20" height="20" alt="6a857e8f" src="https://github.com/user-attachments/assets/227b85c7-f0be-48ad-b746-6fbca1b9178f" /> ＫＯＮ-ＥＬ
- <img width="20" height="20" alt="6a857e8f" src="https://github.com/user-attachments/assets/099c2a7e-2fef-4b24-882d-22ed8b8454e8" />
-<img width="20" height="20" alt="86be4139" src="https://github.com/user-attachments/assets/bc888f1f-9b63-448a-9723-3370a2336eb9" /> TURBOTWIN <img width="20" height="20" alt="86be4139" src="https://github.com/user-attachments/assets/0ce1072a-b6d9-4825-9d51-80575cc7475d" />
-    </th>
-  </tr>
-</table>
+${{\color{#4034f0}{\textsf{no specific brand or smthing I jst like them. I also like\}}}}$
 
-${{\color{#4034f0}{\textsf{⚠︎ TURBO MEGA FANS / WRECK-IT RALPH FANS IN GEN\}}}}$
+${{\color{#4034f0}{\textsf{roads and I love taking a ride at night cuz I think its\}}}}$
 
-${{\color{#4034f0}{\textsf{PLS INT W EXTREME CAUTION UNLESS I ALREADY KNOW U ⚠︎ \}}}}$
-
-${{\color{#4034f0}{\textsf{⚠︎ NO OFFENSE TO ALL BUT SOME OF YOU FANS GEN WILD ASF\}}}}$
-
-${{\color{#4034f0}{\textsf{IWVEC IS BEST APPLIED WHEN INTERACTING W ME DUE\}}}}$
-
-${{\color{#4034f0}{\textsf{TO PAST BAD EXPERIENCES I HAD WITH THIS FANDOM . \}}}}$
-
-${{\color{#4034f0}{\textsf{IM NOT INTERESTED IN INTERACTING W WIR FANS AND MAY\}}}}$
-
-${{\color{#4034f0}{\textsf{TAKE LONG TO WARM UP TO YOU GUYS BUT KNOW I AM\}}}}$
-
-${{\color{#4034f0}{\textsf{NOT HOSTILE TOWARDS ANY OF YOU AND YOU CAN STILL INT ⚠︎\}}}}$
-
-
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Sixtyfour&pause=1000&color=501EFF&width=435&lines=WHAT+DO+U+FEEL%3F" alt="Typing SVG" /></a>
-
-${{\color{#caac67}{\textsf{⤷ ゛Turning 15 , 08/13/11 . Polykin . Panromantic , Bigender , Pupgender . Any pronouns , She/Her/Pup/Pups preferred . Punk kemonomimi \}}}}$
-
-${{\color{#caac67}{\textsf{tomboy IRL ˎˊ˗ \}}}}$
-
-${{\color{#4034f0}{\textsf{❯❯❯❯ ✮⋆˙ I TEND TO HAVE DEREALIZATION-DEPERSONALIZATION EPISODES AT TIMES AND I CAN GET OVERWHELMED AT CERTAIN THINGS EASILY.\}}}}$
-
-${{\color{#4034f0}{\textsf{SORRY IF I COME OFF AS SENSETIVE AND A LOT TO DEAL WITH SOMETIMES AND I DEEPLY APOLOGISE FOR THIS . I MAY ACT WEIRD AND OFF AND SOMETIMES\}}}}$
-
-${{\color{#4034f0}{\textsf{DETACHED BECAUSE OF THIS ⚐ \}}}}$
-
-${{\color{#4034f0}{\textsf{❯❯❯❯ ✮⋆˙ I CAN GET EXTREMELY BRASH, OVERCONFIDENT AND OFTEN GLAZE MYSELF A LOT AT TIMES TO BOOST MY EGO . IM SORRY IN\}}}}$
-
-${{\color{#4034f0}{\textsf{ADVANCE FOR THIS IF THIS BOTHERS YOU A LOT SINCE I CAN GET EXTREMELY ANNOYING AND FRUSTRATING BECAUSE OF THIS ⚐\}}}}$
-
-<details>
-  <summary>
-<img height="20" alt="iwec" src="https://github.com/user-attachments/assets/febd9c19-1894-4baf-8b1b-08febf9bae25" />
-    ＭＯＲＥ ＩＮＦＯ
-<img height="20" alt="iwec" src="https://github.com/user-attachments/assets/febd9c19-1894-4baf-8b1b-08febf9bae25" />
-    </span>
-  </summary>
-
-  <br>
-
-${{\color{#501EFF}{\textsf{« My friend requests are turned off and only add those Ive talked w for more than one day and get along w . I might unfriend you\}}}}$
-
-${{\color{#501EFF}{\textsf{though if we are not that close and havent talked or interacted to eachother for months straight »\}}}}$
-
-${{\color{#501EFF}{\textsf{« I dont use tone tags that often but do tell me if u need them. I might also say some rude and weird things that might make u\}}}}$
-
-${{\color{#501EFF}{\textsf{uncomfortable. Please lmk if I did and I will apologize »\}}}}$
-
-${{\color{#501EFF}{\textsf{« Expect me to actually sit w you if im alone and I see C+H in ur name »\}}}}$
-
-${{\color{#501EFF}{\textsf{« Little to no care abt some stuffs. I also gen dont care abt doubles like okay we the same person coolcool so like dbls free to int ig »\}}}}$
-
-${{\color{#501EFF}{\textsf{« Uhm yeah im also into metal music (mostly white metal), indie pop or whatevr sounds good to me and im also into postal, half-life,\}}}}$
-
-${{\color{#501EFF}{\textsf{HLVRAI, DHMIS, cry of fear, FNF, WIR, ultrakill, comics, the stanley parable, MCSM, until then, SCP, backrooms, TF2 and more »\}}}}$
-
-</details>
-
+${{\color{#4034f0}{\textsf{cool and I also love indigo and orange 𝇕\}}}}$
